@@ -4,4 +4,4 @@
 
 Our **Eating Well Nutrition Therapy, Get Fresh and Food Recovery Programs** improve health outcomes for our members and our community. TOUCH works with our partner organizations in Rockland Community Against Hunger (RCAH) to distribute food to over 35 area food pantries weekly. In 2022 the Food Recovery Program rescued over 1.2 MILLION pounds of food – feeding those in need and benefiting our environment.
 
-**© Copyright 2024 TOUCH - Together Our Unity Can Heal, Inc.
+**© Copyright 2024 TOUCH - Together Our Unity Can Heal, Inc.**
